@@ -1,1 +1,1 @@
-#My loong time ago portfolio (still in progress=))
+#My long time ago portfolio (still in progress=))
