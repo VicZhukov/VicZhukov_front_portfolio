@@ -1,2 +1,1 @@
-# vityok13smith.github.io
-My first public page
+#My loong time ago portfolio (still in progress=))
